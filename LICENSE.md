@@ -1,4 +1,4 @@
-# 
+# Enhance Vegas Pro for PC | Vegas Pro for Windows with advanced Vegas Pro for PC | Vegas Pro for Windows Preset | slow-motion + timeline-editing, the #1 preset. Includes
 
 
 
