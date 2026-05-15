@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://DolphinChasm5.github.io/vegas-pro-for-pc-wp33/) |
  |---------------------|----------------------:|
 
 
